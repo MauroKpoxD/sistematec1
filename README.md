@@ -1,1 +1,0 @@
-# sistematec1
